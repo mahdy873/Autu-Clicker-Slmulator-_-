@@ -1,1 +1,1 @@
-# Autu-Clicker-Slmulator-_-
+Auto Clicker SlmuIator💪
